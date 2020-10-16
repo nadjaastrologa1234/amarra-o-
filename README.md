@@ -1,0 +1,2 @@
+# amarra-o-
+Sensitiva vidente 
